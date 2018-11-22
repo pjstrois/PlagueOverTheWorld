@@ -1,0 +1,2 @@
+# PlagueOverTheWorld
+burn
