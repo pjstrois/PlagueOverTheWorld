@@ -1,2 +1,2 @@
 # PlagueOverTheWorld
-burn
+burn THE WORLD
